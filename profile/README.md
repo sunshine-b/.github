@@ -17,4 +17,4 @@ A group dedicated to providing the public with high-quality items
 
 Sunshine was formed in 2022 with the intention of working with animals on projects.
 
-Our motto is "With significant power comes great trolling."
+Our motto is "With great power comes great trolling."
